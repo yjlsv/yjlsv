@@ -1,16 +1,13 @@
-## Hi there 👋
+首页-黑料-91吃瓜吃瓜有理报料无罪
 
-<!--
-**yjlsv/yjlsv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<a href="https://m8k3.cc">→→最/新/观/看/入/口←←</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+粗鲁的家伙？学会收敛起身上的倒刺？也就是说，是一名和堂岛银有交情，而且很强、还改变过料理风格的人？
+
+    刘昴星总觉得，这样说起来的话，似乎有点巧！
+
+    不过如果是那个人的话，以他的厨艺、创造性，能领悟到“味觉封”的奥义，也并不稀奇。
+
+    “但是给你个提醒吧，将‘封印味觉’作为食戟致胜的法宝，绝对不是明智的选择，不会每次都像昨天一样，天时地利都在配合你，一旦某个环节出了问题，‘封印味觉’的料理就输定了！而且‘味觉封印’不是万能的，即便是在昨天，如果四宫拿出自己的全部实力，也可以冲破你的味觉封印的！”堂岛银说道。
